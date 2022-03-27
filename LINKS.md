@@ -6,4 +6,5 @@ NSFW!! Linktree: Karro89: (https://linktree.karro89.cf/)
 
 NSFW!! Karro89 Website: (https://www.karro89.cf/)
 
-Github Profile: Karro89: (https://github.karro89.cf)
+Github Profile: Karro89: (https://github.karro89.cf) \
+MEGA Cloud: Karro89: (https://mega.karro89.cf/)
